@@ -1,3 +1,3 @@
 # les-citations-de-Steve-Jobs-
 
-Citation 6 : Voulez-vous passer le reste de votre vie à vendre de l'eau sucrée, ou voulez-vous changer le monde ?.
+Citation 7 : Personne ne veut mourir. Même les gens qui veulent aller au paradis ne veulent pas mourir plus vite pour y aller. Et pourtant, la Mort est notre destin à tous. Personne n'y a jamais échappé. Et c'est ainsi que cela doit être, parce que la Mort est sans nul doute la meilleure invention de la Vie. C'est ce qui la rend si importante. Il efface l'ancien pour faire place au nouveau. En ce moment, le nouveau, c'est vous, mais un jour, pas si éloigné, vous allez devenir progressivement l'ancien et être effacé... Désolé d'être aussi dramatique, mais c'est assez vrai..
